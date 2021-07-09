@@ -31,9 +31,6 @@ Links Úteis:
 <br>
   
 <br>
-URLs do Projeto:
-<br>
-<br>
 
 URLs do Projeto:
 
